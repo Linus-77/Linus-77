@@ -2,7 +2,7 @@ Hey,
 Of course, I'm a mechanical engineer.⚙️
 I do everything except engineering.🚀
 
-Wanna hear about the vastness of the universe🌌, Just don't go through this [space](sunilbelbase.com) 
+Wanna hear about the vastness of the universe🌌, Just don't go through this [space](sunilbelbase.com.np) 
 
 
 ## 🌐 Socials:
